@@ -4,7 +4,8 @@
 
 #### Home of the brave
 
+##### Where we kick your butt with a stick
+
 This is where we are.
-Deal with it.
 
 [Google](http://google.com)
